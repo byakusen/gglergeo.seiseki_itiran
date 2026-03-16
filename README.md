@@ -1,0 +1,1 @@
+# gglergeo.seiseki_itiran
